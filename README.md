@@ -17,7 +17,7 @@ character.
 
 The mobs here range from about 44 to 51 there is a mini boss at the back of this profile which is a turtle that is level 51 at the back of this profile.
 
-It is also good for harvesting Thick levels as well off of the Saltwater Snapjaws here as well.
+It is also good for harvesting Thick leather as well off of the Saltwater Snapjaws here as well.
 
 It is also good for harvesting Zesty Clam Meat as well from the big mouth clams as well. you will also randomly get Golden pearls Iridescent Pearls and Black Pearls randomly from the big mouth clams as well.
 
